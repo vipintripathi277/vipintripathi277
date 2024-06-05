@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Product Management, Buidling Saas Solution, Hackathon, Politics & Music :)**
 
--  Check my  👉 [portfolio](https:fueler.io/vipintripathi277)
+-  Check my  👉 [portfolio](https:)
 
 - ⚡ Fun fact about me : **My blood type is coffee ☕**
 
